@@ -15,6 +15,6 @@ I specialize in developing **efficient backend systems** while actively expandin
 
 ## 📫 Contact Me  
 
-- 💬 Discord → [**@dlcn**](https://discord.com/users/1200913182915571926)  
+- 💬 Discord → [**@ndialect**](https://discord.com/users/1200913182915571926)  
 - 🌐 Guns.lol → [**@dialect**](https://guns.lol/dialect)  
 
